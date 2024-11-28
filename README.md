@@ -1,5 +1,6 @@
 <p align="center">
 <img src="https://files.catbox.moe/es4ms6.gif" width="370">
+</p>
 art by 1-marigold-1
 
 (big work in progress)
@@ -19,5 +20,3 @@ i am commonly offtab and do not pay attention to public chat, so please whisper 
 on the same topic, i do not necessarily enjoy talking in public chat in general and prefer whisper/party! im not against talking in public though
 
 unless my name has any variant of dni, feel free to interact (mainly if my status is busy or away, i commonly forget to switch it)
-
-</p>
