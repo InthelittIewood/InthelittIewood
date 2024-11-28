@@ -1,4 +1,6 @@
-![red/black/white lace divider](https://64.media.tumblr.com/876ba7ab2f5b7f776e2799ed103ecf4d/035ab0bcb0979d85-b0/s500x750/ae395b6dd6d1f17fdc63dca23b881dbb4c421f90.png)
+<p align="center">
+<img src="https://files.catbox.moe/es4ms6.gif" width="370">
+art by 1-marigold-1
 
 (big work in progress)
 
@@ -18,4 +20,4 @@ on the same topic, i do not necessarily enjoy talking in public chat in general 
 
 unless my name has any variant of dni, feel free to interact (mainly if my status is busy or away, i commonly forget to switch it)
 
-![wild life renchanting](https://files.catbox.moe/es4ms6.gif)art by 1-marigold-1
+</p>
