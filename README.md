@@ -13,7 +13,7 @@ ponytown stuff
 ***
 you can most likely find me at hermit hill/life series area, object show area, docks, or roaming. im also sometimes with my partner.
 
-feel free to c+h, crown, kiss, whatever. please whisper crowns :)
+feel free to c+h, crown, kiss, whatever. please whisper crowns :) (i dont often respond to crowns but i do appreciate them! social battery is drained all the time, ha)
 
 i am commonly offtab and do not pay attention to public chat, so please whisper if you want to talk. 
 
