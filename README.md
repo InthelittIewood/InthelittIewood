@@ -5,7 +5,7 @@ art by 1-marigold-1
 
 (big work in progress)
 
-martyn/neil, she/her+ae/aers but im fine with any. my gender is really fucked and "conflicting" to my sexuality but im a lesbian. thumbs up!
+martyn/neil, she/her+ae/aers but im fine with any. im also a lesbian and my gender is None of your Business
 
 [int](https://antifandom.com/the-life-series/wiki/InTheLittleWood#3rd_Life_(Season_1))roject, im also the host of a system. very much disabled (physical and mental)
 
