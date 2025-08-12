@@ -19,6 +19,6 @@ also, i'm not gonna put a dni list here (use [system dni](https://rentry.co/grum
 - DDVAU/double hearted fans (overall just bad experiences w/ fans)
 - heavy scar/grian shippers (NOTHING WRONG WITH SCARIAN! another overall bad experience w/ fans)
 - flower husband (jim/scott) shippers (same as above 2 but because of stuff that happened to my friend)
-- anti joelshipping/lizzieshipping (this is not the place for you. i do both occasionally)
+- anti joelshipping/lizzieshipping (i do both occasionally , altho i don't talk abt it)
 
 this'll be updated occasionally... i don't know how often but i'll try to keep it updated!
