@@ -1,3 +1,5 @@
+i follow people who have cool repositories / rentrys / atabooks / whtever!
+
 quick rundown of ponytown stuff because, uh, i dunno. if you want info about me check either of these rentrys [1](https://rentry.co/inthelittlewood) [2](https://rentry.co/pawpertypolice) 
 (the 2nd has more info overall)
 
