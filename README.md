@@ -1,4 +1,4 @@
-quick rundown of ponytown stuff because, uh, i dunno. if you want info about me check either of these rentrys [1](https://rentry.org/inthelittlewood) [2](https://rentry.org/pawpertypolice) 
+quick rundown of ponytown stuff because, uh, i dunno. if you want info about me check either of these rentrys [1](https://rentry.co/inthelittlewood) [2](https://rentry.co/pawpertypolice) 
 (the 2nd has more info overall)
 
 - i'm often offtab! if you want my attention/give a crown please do it in whisper.
@@ -12,7 +12,7 @@ quick rundown of ponytown stuff because, uh, i dunno. if you want info about me 
 - i'd rather not have people directly copy my ponies, but inspiration is ok!
 - c+h is always ok, esp. if matching fandom ponies! :-)
 
-also, i'm not gonna put a dni list here (use [system dni](https://rentry.org/grumbomb) for that) but a quick interact with caution list w/ short explanations
+also, i'm not gonna put a dni list here (use [system dni](https://rentry.co/grumbomb) for that) but a quick interact with caution list w/ short explanations
 - skizz fans (recent situations, may be removed/enforced depending on whatever happens in the future)
 - DDVAU/double hearted fans (overall just bad experiences w/ fans)
 - heavy scar/grian shippers (NOTHING WRONG WITH SCARIAN! another overall bad experience w/ fans)
