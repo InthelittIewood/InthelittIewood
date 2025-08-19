@@ -5,6 +5,7 @@ quick rundown of ponytown stuff because, uh, i dunno. if you want info about me 
 
 - i'm often offtab! if you want my attention/give a crown please do it in whisper.
 - i am terribly anxious of public chat and prefer whispers/party, although i try my best!
+- i get drained real easily and am terribly awkward. if you're a friend (/green name) & i'm around feel free to say hi!! i can't guarantee i'll be up to talking.
 - i'm almost always willing to chat! i may come off as uncomfortable or dry but i just struggle w/ talking overall.
 - (related to above point) feel free to interact whenever! unless i have any form of dni in my pony name. i don't change the status often.
 - (related to above point again) i take a WHILE to warm up to people, but when i do i am Terribly active & talkative!
