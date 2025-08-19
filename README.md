@@ -16,7 +16,7 @@ quick rundown of ponytown stuff because, uh, i dunno. if you want info about me 
 - c+h is always ok, esp. if matching fandom ponies! :-)
 
 also, i'm not gonna put a dni list here (use [system dni](https://rentry.co/grumbomb) for that) but a quick interact with caution list w/ short explanations
-- skizz fans (recent situations, may be removed/enforced depending on whatever happens in the future)
+- skizz fans (current things happening; MAGA mods/friends, [this twitter account](https://x.com/SkizzleArchive) has a bunch of info) (may be bumped up to DNI)
 - DDVAU/double hearted fans (overall just bad experiences w/ fans)
 - heavy scar/grian shippers (NOTHING WRONG WITH SCARIAN! another overall bad experience w/ fans)
 - flower husband (jim/scott) shippers (same as above 2 but because of stuff that happened to my friend)
