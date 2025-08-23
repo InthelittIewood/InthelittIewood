@@ -36,5 +36,7 @@ quick list! anything in parentheses are simple reasons why. IWC/ thin ice?? i gu
 - I LOVE CROWNS i love crowning & getting crowns. if i like your pony i WILL be crowning it. sorry if i don't respond tho! i just get awkward...
 - i like to fuck around :tm: and by this i mean I Like Reading info. if you have a github or something linked to your pony i have probably clicked on it by the time you talk to me & read everything i could find. i love reading. my favorite activity. But Seriously i just, like knowing stuff before i interact!! not meant to be weird i just have shit memory and kind of need to :'3
 - if it seems like i'm ignoring you i'm probably offtab or not at my laptop!!!! if i dislike you i will make that clear like right away. also i block/mute freely (i don't hide tho)
+- i get drained socially Very easily. i'm also disabled which plays a part in this. so sorry if i come off as dry sometimes!
+- slightly related to above point, but if i'm acting drastically different but this github is linked it may or may not be my evil twin [hourglass](https://github.com/thesunlandictwins/alt.hourglass) (love it <3 my evil nefarious twin. NOT evil i just am a little jest i am joking!) because i'm. also part of a subsystem and co-consciousness and yada yada you get the idea. i might also just be feeling like shit at the time so like it might be me. might not be. mainly adding this because hex often doesn't change the social link
 ***
 more will be added here as time goes on!
