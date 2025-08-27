@@ -9,7 +9,7 @@ my identity is very much a mess but to simply put it: i am a trans objectum lesb
 bodily white & very much disabled. body age is n/a on account of i'm ant!
 
 i'm both an introject (3rd life martyn) & the host of a (polyfragmented) system. <br>
-i don't really care about 'doubles' or whatever and uhh. source talk ok <- mcyt sp/interest <br>
+i don't really care about 'doubles' or whatever and uhh. source talk (mostly) ok <- mcyt sp/interest <br>
 i'm not always fronting so um . thumbs up! if you're not sure just bap (whisper) <br>
 ^ usually if a different github is linked (renchanting, thesunlandictwins) then its probably not me
 
