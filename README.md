@@ -17,7 +17,7 @@ uhhh I DONT KNOW WHAT ELSE TO PUT HERE help. this is the general... gist of it..
 ***
 ## "INTERACT WITH CAUTION" (not a dni list):
 quick list! anything in parentheses are simple reasons why. IWC/ thin ice?? i guess.
-- skizz fans ([this twitter account](https://x.com/SkizzleArchive) is worth looking at, there's a lot to summarize but basically transphobia & conservative shit)
+- skizz fans ([this twitter account](https://x.com/SkizzleArchive) is worth looking at. i'll probably update this once i collect my thoughts on his response/apology thing, but for the time being please just iwc! thanks)
 - doc fans (general dislike for him, also was. terribly childish about something)
 - DDVAU/double hearted fans (personal dislike & opinions on the comic, also that "all cops are beautiful" shit about hotguy) (fuck off if you were doing that!)
 -  **heavy** scarian (scar/grian) shippers (bad experiences, just be normal please)
