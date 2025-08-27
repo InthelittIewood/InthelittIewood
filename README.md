@@ -16,9 +16,10 @@ i'm not always fronting so um . thumbs up! if you're not sure just bap (whisper)
 uhhh I DONT KNOW WHAT ELSE TO PUT HERE help. this is the general... gist of it.... shrugs
 ***
 ## "INTERACT WITH CAUTION" (not a dni list):
-quick list! anything in parentheses are simple reasons why. IWC/ thin ice?? i guess.
+quick list! anything in parentheses are simple reasons why. IWC/ thin ice?? i guess. <br>
+sorry if some of these seem petty. i'm a terribly petty person & hold grudges so easily </3
 - skizz fans ([this twitter account](https://x.com/SkizzleArchive) is worth looking at. i'll probably update this once i collect my thoughts on his response/apology thing, but for the time being please just iwc! thanks)
-- doc fans (general dislike for him, also was. terribly childish about something)
+- doc fans (general dislike for him)
 - DDVAU/double hearted fans (personal dislike & opinions on the comic, also that "all cops are beautiful" shit about hotguy) (fuck off if you were doing that!)
 -  **heavy** scarian (scar/grian) shippers (bad experiences, just be normal please)
 -  **heavy** ranchers (tango/jimmy) shippers (same as above)
