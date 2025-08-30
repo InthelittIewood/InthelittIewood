@@ -13,7 +13,8 @@ i don't really care about 'doubles' or whatever and uhh. source talk (mostly) ok
 i'm not always fronting so um . thumbs up! if you're not sure just bap (whisper) <br>
 ^ usually if a different github is linked (renchanting, thesunlandictwins) then its probably not me
 
-uhhh I DONT KNOW WHAT ELSE TO PUT HERE help. this is the general... gist of it.... shrugs
+uhhh I DONT KNOW WHAT ELSE TO PUT HERE help. this is the general... gist of it.... shrugs <br>
+OH heres our collective pony masterlist [(link)](https://birdwatching.straw.page/) please look at it i spent like an hour on it </3
 ***
 ## "INTERACT WITH CAUTION" (not a dni list):
 quick list! anything in parentheses are simple reasons why. IWC/ thin ice?? i guess. <br>
