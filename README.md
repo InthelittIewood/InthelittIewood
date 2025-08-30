@@ -31,7 +31,7 @@ sorry if some of these seem petty. i'm a terribly petty person & hold grudges so
 - i'm often afk or offtab, so please whisper if you wanna talk! unless i'm actively in a conversation (in public chat).
 - somewhat related to above, but i also sometimes have chat set to freinds/party/whispers, mostly due to getting overwhelmed (or distracted), so honestly whispering is your best bet!
 - i get anxious around people and often go silent for extended periods of time. it's not because i dislike you or anything, i just. don't know what to say.
-- PLEASE interact i love talking to people. i just suck at it... unless my pony has a variant of dni and it doesn't apply to you (if i have DNIUF & you're a green name then u can still interact!)
+- PLEASE interact i love talking to people. i just suck at it... unless my pony has a variant of dni and it doesn't apply to you (if ur a green name & i have dniuf or dniuid you can still int!)
 - i prefer party chat or whispers, but i don't mind public! just general preference (also ponytown has such?? weird censoring. #Kicked for saying "beheading")
 - i sometimes make sexual jokes, although only with like, close friends. if you're uncomfortable just bap me & i'll stop!
 - i suck at typing and make mistakes (on purpose ANd accident). if this makes it hard to understand/is just annoying just tell me & i'll stop
