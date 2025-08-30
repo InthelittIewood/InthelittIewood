@@ -18,8 +18,7 @@ uhhh I DONT KNOW WHAT ELSE TO PUT HERE help. this is the general... gist of it..
 ## "INTERACT WITH CAUTION" (not a dni list):
 quick list! anything in parentheses are simple reasons why. IWC/ thin ice?? i guess. <br>
 sorry if some of these seem petty. i'm a terribly petty person & hold grudges so easily </3
-- skizz fans ([this twitter account](https://x.com/SkizzleArchive) is worth looking at, more laid back on this but still!)
-- doc fans (general dislike for him)
+- doc fans (general dislike for him SORRY)
 - DDVAU/double hearted fans (personal dislike & opinions on the comic, also that "all cops are beautiful" shit about hotguy) (fuck off if you were doing that!)
 -  **heavy** scarian (scar/grian) shippers (bad experiences, just be normal please)
 -  **heavy** ranchers (tango/jimmy) shippers (same as above)
