@@ -28,6 +28,7 @@ sorry if some of these seem petty. i'm a terribly petty person & hold grudges so
 -  scott/pearl, scott/woman shippers (do i Need to explain this) (also fuck off if you think scott/cleo falls into this category because it doesn't. hashtag sceo)
 ***
 ## BEFORE YOU INTERACT / FRIEND:
+- OK putting this at the top BUT!! ponytown is against me and i am very prone to disconnecting. if we're in a conversation and i suddenly just leave i probably got disconnected! and/or my webGL context BROKE because it keeps doing that. it is very annoying but i cannot figure out for the life of me how to fix it because my device is Fully up to date and i've triple checked. SOS!!!!!!!!!
 - i'm often afk or offtab, so please whisper if you wanna talk! unless i'm actively in a conversation (in public chat).
 - somewhat related to above, but i also sometimes have chat set to freinds/party/whispers, mostly due to getting overwhelmed (or distracted), so honestly whispering is your best bet!
 - i get anxious around people and often go silent for extended periods of time. it's not because i dislike you or anything, i just. don't know what to say.
