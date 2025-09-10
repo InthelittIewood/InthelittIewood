@@ -29,6 +29,7 @@ sorry if some of these seem petty. i'm a terribly petty person & hold grudges so
 ***
 ## BEFORE YOU INTERACT / FRIEND:
 - OK putting this at the top BUT!! ponytown is against me and i am very prone to disconnecting. if we're in a conversation and i suddenly just leave i probably got disconnected! and/or my webGL context BROKE because it keeps doing that. it is very annoying but i cannot figure out for the life of me how to fix it because my device is Fully up to date and i've triple checked. SOS!!!!!!!!!
+- somewhat important so i'll put this at the top too but i am Disabled and Depressed and just ill in every way possible. i am often inactive for long periods of time for one reason or another (ususally because of one of the listed things) i am just not mentally well. i try to be active whenever i get thr chance and my brain isn't yelling at me for god knows what
 - i'm often afk or offtab, so please whisper if you wanna talk! unless i'm actively in a conversation (in public chat).
 - somewhat related to above, but i also sometimes have chat set to freinds/party/whispers, mostly due to getting overwhelmed (or distracted), so honestly whispering is your best bet!
 - i get anxious around people and often go silent for extended periods of time. it's not because i dislike you or anything, i just. don't know what to say.
