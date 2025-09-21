@@ -1,7 +1,11 @@
-redoing this 🙄
-
-
-***
 <p align="center">
-<img src="https://64.media.tumblr.com/c427d6b056ea1de4f97072dd8ac4d604/92be0d977cda7472-b5/s2048x3072/f4bbc254528d129b78da5d0c77211830b43ba342.png">
+hi .. i'm martyn/neil/jeanine ! <br>
+  any pronouns but i prefer she/ae <br>
+<br>
+    syshost + introject of 3rd life martyn <br>
+  "doubles" & source talk ok, i don't mind <br>
+<br>
+<img src="https://64.media.tumblr.com/cf177147309c4b7f2ba33af22c14e5bd/92be0d977cda7472-9f/s250x400/1a14b5a8347d6847503adeb4b01dd0ebab70cb19.png"> <br>
+  art above by @ragefaic on twitter <br>
+  quick links to byf/byi, dni/iwc & interests here soon
 </p>
